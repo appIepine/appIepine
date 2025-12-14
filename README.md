@@ -9,7 +9,7 @@
 
 
   
-   HII HELLOO WELCOME TO MY VERY UNORGINIZED PROFILEEE <img width="160" height="100" alt="image" src="https://github.com/user-attachments/assets/5ecec1b8-e2ec-4507-857c-ede79f47f3c1" /> <img width="200" height="200" alt="picmix com_2746877" src="https://github.com/user-attachments/assets/a74baaf2-5605-45c5-9296-7cf8153f0179" />
+   HII HELLOO WELCOME TO MY VERY UNORGINIZED PROFILEEE <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/5ecec1b8-e2ec-4507-857c-ede79f47f3c1" /> <img width="200" height="200" alt="picmix com_2746877" src="https://github.com/user-attachments/assets/a74baaf2-5605-45c5-9296-7cf8153f0179" />
 
 
 
